@@ -1,4 +1,4 @@
-# ✨ systems / networks / devops / clouds / rains / winds & thunders engineer & security specialist ✨ online since online was encrypted in morse ✨ two+ decades of sailing outside of the box, sometimes 4 $, sometimes 4 kicks ✨ www.root.tips ✨ 
+# ✨ systems / networks / devops / cloud / rains / winds & thunders engineer & security specialist, sailing outside of the box for 20+ years ✨ www.root.tips ✨ 
 
 
 
