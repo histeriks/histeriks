@@ -1,8 +1,1 @@
-# ✨ systems / networks / devops / cloud / rains / winds & thunders engineer & security specialist, sailing outside of the box for 20+ years ✨ www.root.tips ✨ 
-
-
-
-
-
-
-
+# ✨ systems / networks / devops / cloud / rains / winds & thunders engineer & security specialist from outside of the box ✨ www.root.tips ✨ 
