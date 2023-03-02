@@ -1,1 +1,1 @@
-✨ systems / networks / devops / cloud, rains, winds and thunders engineer & info-tech security consultant ✨ rescuing runaways from their hostile manuals for well over two decades ✨ read my writings @ www.root.tips ✨
+✨ systems / networks / devops / cloud, rains, winds and thunders engineer & info-tech security consultant ✨ rescuing runaways from their own hostile manuals for well over two decades ✨ read my writings @ www.root.tips ✨
